@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CodeGrunt1337
+- 👀 I’m interested in Soccer, IoT and Gaming.
+- 🌱 I’m currently learning to integrate my electronic components into my home automation. :-)
+- 💞️ I’m looking to collaborate on ...
+- 📫 To reach me send me a private message and will stick back to you in time.
